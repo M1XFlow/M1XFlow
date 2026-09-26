@@ -1,6 +1,6 @@
 # 💫About Me:
 
-⚙️ Cyber Security @ Technological University Dublin
+⚙️ Cyber Security and Digital Forensics @ Technological University Dublin
 
 
 Also a content Creator on tiktok
